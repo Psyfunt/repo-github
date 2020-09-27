@@ -1,1 +1,1 @@
-Go Fuck Yourself
+fuck
